@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @jordan23money
+- 👀 I’m interested in Sports
+- 🌱 I’m currently learning Technology
+- 💞️ I’m looking to collaborate on Anything im New!
+- 📫 How to reach me dailypuzzles@outlook.com
+- 😄 Pronouns: He,Him,Boy,Michael
+- ⚡ Fun fact: i just started learning tech this year with the help of @x83owen
